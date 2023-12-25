@@ -1,6 +1,6 @@
 ### Hi there 👋
 I am student and very very expert.
-Pls no chopy my code.
+Pls no copy my code.
 thx.
 <!--
 
